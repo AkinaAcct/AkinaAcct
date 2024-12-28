@@ -5,7 +5,7 @@
 
 My name is Akina, a girl which is 17 y.o.
 
-![47926B6E5C3D04E93A2A627F67C3390010A1A57A](https://img.shields.io/badge/PGP-8F25%205FEB%2002F7%209627%2006CF%20B22F%202C96%20D8F4%20A153%20512B-green?style=for-the-badge)
+![C712 D54E 85B2 855A A381 C913 E089 711B 4C7C 2FA1](https://img.shields.io/badge/PGP-C712%20D54E%2085B2%20855A%20A381%20C913%20E089%20711B%204C7C%202FA1-green?style=for-the-badge)
 ---
 
 <p align="center">
